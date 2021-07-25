@@ -8,4 +8,4 @@ NIM : 311910254
 
 Link Laporan : https://drive.google.com/file/d/1pSBjx8V7J1YI6mIgrkHXGQ0BF6xL63Fd/view?usp=sharing
 
-Link Youtube : 
+Link Youtube : https://youtu.be/nnbRTWXTlTA
